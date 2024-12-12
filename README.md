@@ -6,6 +6,6 @@ I am a recent graduate with a profound interest in Cyber Security with strong sk
 
 ## Objective
 
-My journey started with my Bachelors in Cyber Forensics which led me to develop a passion for cybersecurity and I am now eager to progress in this field, obtaining a job role in a reputable organization.
+My journey into cybersecurity began with a Bachelor's degree in Cyber Forensics, where I discovered my passion for the field. This passion further developed during my Master's in Cybersecurity, where I honed my skills and deepened my knowledge. I am now enthusiastic about advancing my career by securing a role in a reputable organization where I can continue to grow and contribute.
 
 
